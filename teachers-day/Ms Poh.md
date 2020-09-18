@@ -10,4 +10,5 @@
     as lesson goes, your high pitched voice reverberated through the air.
     maybe our ears will get used to it one day. 
     and it also removes our sleepiness.
-    
+    You try very hard trying to teach us and help us get good results
+    I apologise beforehand if it disappoints you too much.
