@@ -14,3 +14,5 @@
     but for now it removes our sleepiness
     I know that you try very hard to help us ace our exams
     but i apologise beforehand if we disappoint you too much.
+    Happily, our results were great
+    And even though you are leaving the school, i hope to see you again
