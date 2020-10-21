@@ -4,11 +4,13 @@
     once you step into the class there's 'peace'.
     your jokes always lose the peacefulness
     but we like it
-    suddenly, "bam" goes the reminder of silence
+    suddenly,
+    "bam" 
+    goes the reminder of silence
     as your waterbottle slams the table
-    we wouldnt be amused if the table breaks one day and not your waterbottle.
-    as lesson goes, your high pitched voice reverberated through the air.
-    maybe our ears will get used to it one day. 
-    and it also removes our sleepiness.
-    You try very hard trying to teach us and help us get good results
-    I apologise beforehand if it disappoints you too much.
+    we wouldnt be surprised if the table breaks one day and not your waterbottle
+    as your lesson goes, your high pitched voice reverbrates through the air
+    maybe our ears will get used to it one day
+    but for now it removes our sleepiness
+    I know that you try very hard to help us ace our exams
+    but i apologise beforehand if we disappoint you too much.
